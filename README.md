@@ -3,7 +3,8 @@
 - 👀 I’m interested in ...mechatronics,opensource electronics and hardware ,Robotics,IOT,AI,ML
 - I upload videos on YouTube
 - YouTube channel MR SCIENTIST
-- https://youtube.com/@mr.scientist07ind?feature=shared
+- https://youtube.com/@mr.scientist07ind
+- 
 - please subscribe to my channel
 - 
 - 
